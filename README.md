@@ -27,6 +27,7 @@ Name: ____________
 My hidden talent: _______________________________
 
 The title of my autobiography would be: _______________________________
+fareedha
 
 If I ruled the world for one day, I would: _______________________________
 
